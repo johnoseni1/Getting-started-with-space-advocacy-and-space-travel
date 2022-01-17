@@ -18,4 +18,4 @@
 - That hasn’t stopped people from signing up and blasting off. NASA’s shuttle program has ended, but private companies are readying their own space programs. A company called Planetary Resources plans to send robot astronauts to the Asteroid Belt to mine for precious metals. Another company named SpaceX is hoping to land civilian astronauts on Mars—the next human step into the solar system—in 20 years. NASA and other civilian companies are planning their own Mars missions. Maybe you’ll be a member of one? Don’t forget to bring your dog.
 
 
-
+  [space image](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.nasa.gov%2Fpress-release%2Fnasa-television-to-air-space-station-cargo-ship-launch-docking-1&psig=AOvVaw0A9JmjBWqGht68VfQGtBj5&ust=1642515240477000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCICUmeL8uPUCFQAAAAAdAAAAABAD)
