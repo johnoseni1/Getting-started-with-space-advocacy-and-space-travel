@@ -26,4 +26,5 @@
  
  ![bahamas](https://cbsnews2.cbsistatic.com/hub/i/r/2021/08/02/caba2633-9c02-4df7-8375-525bb9186afa/thumbnail/1240x824/e90733390c433132d07e82a2698e4af5/atlantisinspace.jpg)
   
-  
+  # contibuting
+## Feel free to contribute and make a pull request, then i compare and merge it up
