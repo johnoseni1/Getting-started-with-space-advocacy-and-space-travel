@@ -17,6 +17,13 @@
 
 - That hasn’t stopped people from signing up and blasting off. NASA’s shuttle program has ended, but private companies are readying their own space programs. A company called Planetary Resources plans to send robot astronauts to the Asteroid Belt to mine for precious metals. Another company named SpaceX is hoping to land civilian astronauts on Mars—the next human step into the solar system—in 20 years. NASA and other civilian companies are planning their own Mars missions. Maybe you’ll be a member of one? Don’t forget to bring your dog.
 
-  This is how Mars does look like, 
-  a result of space travel:
+  ## This is how Mars does look like, 
+ ## a result of space travel:
+  
   ![space image](https://www.nasa.gov/sites/default/files/thumbnails/image/curiosity_selfie.jpg)
+  
+ ## Images of float over the bahamas 
+ 
+ ![bahamas](https://cbsnews2.cbsistatic.com/hub/i/r/2021/08/02/caba2633-9c02-4df7-8375-525bb9186afa/thumbnail/1240x824/e90733390c433132d07e82a2698e4af5/atlantisinspace.jpg)
+  
+  
