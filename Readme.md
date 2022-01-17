@@ -16,3 +16,38 @@
 - Space travel is nothing like in the movies. Getting from A to B requires complex calculations involving inertia and gravity—literally, rocket science—to "slingshot" from planet to planet (or moon) across the solar system. The Voyager mission of the 1970s took advantage of a rare alignment of Jupiter, Saturn, Uranus, and Neptune to shave off nearly 20 years of travel time. Space is also dangerous. More than 20 astronauts have died doing their job.
 
 - That hasn’t stopped people from signing up and blasting off. NASA’s shuttle program has ended, but private companies are readying their own space programs. A company called Planetary Resources plans to send robot astronauts to the Asteroid Belt to mine for precious metals. Another company named SpaceX is hoping to land civilian astronauts on Mars—the next human step into the solar system—in 20 years. NASA and other civilian companies are planning their own Mars missions. Maybe you’ll be a member of one? Don’t forget to bring your dog.
+
+
+
+  5:53
+Now playing
+
+  
+    
+    
+    
+  
+
+
+
+
+  
+
+
+
+  
+    Watch later
+  
+
+  
+  Watch later
+
+
+
+
+    Add to queue
+  
+
+  
+  Add to queue  
+
